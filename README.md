@@ -1,2 +1,1 @@
-# dhl2902
-hi
+# HaToKi V2 crack by Do Hoang Lam
